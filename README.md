@@ -1,4 +1,7 @@
 # 👋 Hi, I'm **Muhammad Samiullah**  
+
+<img width="1254" height="1254" alt="ChatGPT Image Aug 17, 2026, 04_58_30 AM" src="https://github.com/user-attachments/assets/5d1f18be-e330-42d5-80c8-d4f972cd470c" />
+
 > _"Dream big,work hard, and stay humble."_
 
 > "Ever tried, ever failed.No matter,try again.Fail again, fail better.The world is yours.Treat everyone kindly, And light up the night." 
