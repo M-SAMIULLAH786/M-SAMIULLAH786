@@ -1,6 +1,6 @@
 # 👋 Hi, I'm **Muhammad Samiullah**  
 
-<img width="1254" height="1254" alt="ChatGPT Image Aug 17, 2026, 04_58_30 AM" src="https://github.com/user-attachments/assets/5d1f18be-e330-42d5-80c8-d4f972cd470c" />
+<img width="493" height="493" alt="ChatGPT_Image_Aug_17_2026_04_58_30_AM_optimized_500" src="https://github.com/user-attachments/assets/af469b79-dfac-4784-bff6-6b925764e273" />
 
 > _"Dream big,work hard, and stay humble."_
 
