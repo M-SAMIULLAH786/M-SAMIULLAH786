@@ -1,7 +1,4 @@
 # 👋 Hi, I'm **Muhammad Samiullah**  
-
-<img width="256" height="256" alt="216121964-513bdf95-3c8c-429a-82bc-7c770caca8fc (1)" src="https://github.com/user-attachments/assets/570c575e-2e03-4f75-9615-e45213520692" />  
-
 > _"Dream big,work hard, and stay humble."_
 
 > "Ever tried, ever failed.No matter,try again.Fail again, fail better.The world is yours.Treat everyone kindly, And light up the night." 
