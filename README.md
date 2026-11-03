@@ -1,7 +1,5 @@
 # 👋 Hi, I'm **Muhammad Samiullah**  
 
-![212257472-08e52665-c503-4bd9-aa20-f5a4dae769b5](https://github.com/user-attachments/assets/f039cd59-17c3-4a6e-9451-fde52d620a7f)
-![212747919-84b68444-0d81-46db-a338-7ec50e9dd4cd](https://github.com/user-attachments/assets/5f924a2d-b652-4b74-a656-f8d97982d7a3)
 <img width="256" height="256" alt="216121964-513bdf95-3c8c-429a-82bc-7c770caca8fc (1)" src="https://github.com/user-attachments/assets/570c575e-2e03-4f75-9615-e45213520692" />  
 
 > _"Dream big,work hard, and stay humble."_
